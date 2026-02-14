@@ -10,10 +10,10 @@ inspo is a-okay
 ㅤ  
 ㅤ  ㅤ ㅤ  
 
-curious about me?:  
+interests and dni + byi:  
 [rentry.co/riceTM](https://rentry.co/riceTM)    
 
-don't know how to refer to me?:    
+don't know how to refer to me?    
 [pronouns.cc/@riceTM](https://pronouns.cc/@riceTM)
 
 draw or leave a message here:  

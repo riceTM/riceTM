@@ -10,10 +10,7 @@ inspo is a-okay
 ㅤ  
 ㅤ  ㅤ ㅤ  
 ㅤ  
-ㅤ  
-ㅤ  
-ㅤ  ㅤ ㅤ  
-ㅤ  
+ㅤ  ㅤ  
 bio:  
 [rentry.co/riceTM](https://rentry.co/riceTM)    
 

@@ -13,9 +13,9 @@ inspo is a-okay
 curious about me?:  
 [rentry.co/riceTM](https://rentry.co/riceTM)    
 
-draw or leave a message here:  
-[ricetm.straw.page](https://ricetm.straw.page)
-
 don't know how to refer to me?:    
 [pronouns.cc/@riceTM](https://pronouns.cc/@riceTM)
+
+draw or leave a message here:  
+[ricetm.straw.page](https://ricetm.straw.page)
 <br clear="left"/>

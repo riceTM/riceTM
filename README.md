@@ -9,12 +9,13 @@ inspo is a-okay
 ㅤ  
 ㅤ  
 ㅤ  ㅤ ㅤ  
-ㅤ  
-ㅤ  ㅤ  
-ㅤ  
+
 bio:  
 [rentry.co/riceTM](https://rentry.co/riceTM)    
 
 draw or leave a message here:  
 [ricetm.straw.page](https://ricetm.straw.page)
+
+curious about me?:    
+[pronouns.cc/@riceTM](https://pronouns.cc/@riceTM)
 <br clear="left"/>

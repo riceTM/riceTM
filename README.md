@@ -1,15 +1,12 @@
 <img src="https://github.com/user-attachments/assets/aac9803c-d4ac-49d4-93da-418150b4e500" align="left" width="330" />
 
 ㅤ  
-no github = not me  
+### no github = not me  
 
-do NOT copy/post my skins anywhere  
+### do NOT copy/post my skins anywhere  
 
-inspo is a-okay  
-ㅤ  
-ㅤ  
-ㅤ  ㅤ ㅤ  
-
+### inspo is a-okay  
+ㅤ  ㅤ  ㅤ  ㅤ ㅤ  
 interests and dni + byi:  
 [rentry.co/riceTM](https://rentry.co/riceTM)    
 

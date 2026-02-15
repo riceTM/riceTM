@@ -13,6 +13,6 @@ interests and dni + byi:
 don't know how to refer to me?    
 [pronouns.cc/@riceTM](https://pronouns.cc/@riceTM)
 
-draw or leave a message here:  
+draw or leave a message:  
 [ricetm.straw.page](https://ricetm.straw.page)
 <br clear="left"/>

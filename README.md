@@ -1,12 +1,13 @@
 <img src="https://github.com/user-attachments/assets/aac9803c-d4ac-49d4-93da-418150b4e500" align="left" width="330" />
 
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=riceTM&label=views&color=d9a462&style=flat-square&abbreviated=true)
- 
+
 ### no github = not me  
 
 ### do NOT copy/post my skins anywhere  
 
-### inspo is a-okay  
+### inspo is a-okay
+###### [e.g. making your own tiger skin and not copying features from mine]  
 ㅤ  ㅤ  ㅤ  ㅤ ㅤ  
 interests and dni + byi:  
 [rentry.co/riceTM](https://rentry.co/riceTM)    

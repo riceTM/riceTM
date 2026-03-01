@@ -17,4 +17,7 @@ draw or leave a message:
 [ricetm.straw.page](https://ricetm.straw.page)
 <br clear="left"/>
 
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=riceTM&label=views&color=d9a462&style=flat-square&abbreviated=true)
+<p align="center">
+  
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=riceTM&label=views&color=d9a462&style=flat-square&abbreviated=true)    
+</p>

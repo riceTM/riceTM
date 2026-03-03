@@ -1,5 +1,3 @@
-<img src="https://github.com/user-attachments/assets/aac9803c-d4ac-49d4-93da-418150b4e500" align="left" width="330" />
-
 ### no github = not me  
 
 ### do NOT copy/post my skins anywhere  
@@ -15,9 +13,6 @@ don't know how to refer to me?
 
 draw or leave a message:  
 [ricetm.straw.page](https://ricetm.straw.page)
-<br clear="left"/>
-
-<div align="center">
   
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=riceTM&label=views&color=d9a462&style=flat-square&abbreviated=true)    
-</div>
+

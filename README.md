@@ -17,5 +17,5 @@ draw or leave a message:
 
 <div align="center">
 
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=riceTM&label=views&color=d9a462&style=flat-square&abbreviated=true)    
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=riceTM&label=views&color=5c5c5c&style=flat-square&abbreviated=true)    
 </div>

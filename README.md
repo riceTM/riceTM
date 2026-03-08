@@ -2,9 +2,8 @@
 
 ### do NOT copy/post my skins anywhere  
 
-### inspo is a-okay
-###### [e.g. make your own tiger and don't copy how i made mine]  
-ㅤ  ㅤ  ㅤ  ㅤ ㅤ  
+### ask before taking inspo
+   ㅤ  ㅤ  ㅤ ㅤ  
 interests and dni + byi:  
 [rentry.co/riceTM](https://rentry.co/riceTM)    
 

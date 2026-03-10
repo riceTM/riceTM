@@ -1,9 +1,10 @@
 ### no github = not me  
 
 ### do NOT copy/post my skins anywhere  
+###### friends can remake skins of mine if joking around
 
 ### ask before taking inspo
-   ㅤ  ㅤ  ㅤ ㅤ  
+
 interests and dni + byi:  
 [rentry.co/riceTM](https://rentry.co/riceTM)    
 
